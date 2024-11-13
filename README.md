@@ -1,3 +1,5 @@
+# DMCA'd! aww man.
+This has been dmca'd so archived now. 
 # Eaglercraft 1.21.1
 New updated version of Minecraft for the Eaglercraft community.
 ### Brought to you by RaveTek and AR-DEV-1
